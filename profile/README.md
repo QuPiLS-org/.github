@@ -8,9 +8,8 @@
 - **Vernetzung:** Kollegialer Austausch und Zusammenarbeit.
 
 ## **Was wir tun**
-- Monatliche Stammtische und Workshops.
-- Kooperation mit anderen Netzwerken.
-- Unterstützung durch die Antidiskriminierungsstelle Hessen.
+- Monatliche Stammtische und Workshops
+- Kooperation mit anderen Netzwerken
 
 ## **Kontakt**
 Interessiert? Schreiben Sie uns unter info@qupils.org. Gemeinsam gestalten wir eine vielfaltskompetente Verwaltung!
