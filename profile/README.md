@@ -1,4 +1,4 @@
-# QuPiLs - Queer Professionals im Landesdienst Hessen
+# QuPiLs - Queer Professionals im Landesdienst
 
 **QuPiLs** ist das Netzwerk queerer Beschäftigter in der hessischen Landesverwaltung. Wir setzen uns für Vielfalt, Akzeptanz und ein diskriminierungsfreies Arbeitsumfeld ein.
 
